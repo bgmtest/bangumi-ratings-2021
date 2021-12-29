@@ -1,1 +1,1 @@
-bangumi-ratings-2021
+(bgm38)
